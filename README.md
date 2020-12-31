@@ -1,4 +1,4 @@
-![Profile views](https://gpvc.arturio.dev/[Ayushiraj9507])
+![Profile views](https://gpvc.arturio.dev/Ayushiraj9507)
 ### Hi Everyone 👋 ***I'm Ayushi***
 
 <!--
